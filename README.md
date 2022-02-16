@@ -1,1 +1,1 @@
-# Bamstar-3
+# REG
